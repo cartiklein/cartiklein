@@ -41,7 +41,7 @@
 
 <img src="https://github.com/cartiklein/cartiklein/blob/main/image6.jpg?raw=true" width="100%" alt="Image 6" />
 
-### pull up and take me out, do me that solid
+### do me that solid
 > *"pull up on my block and take me down, do me that solid"*
 
 </div>
