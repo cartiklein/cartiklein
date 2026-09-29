@@ -1,5 +1,9 @@
 <div align="center">
 
+### cartiklein in the trap, peep whatever you want, steal whatever you want, fuck copyright
+
+<br>
+
 <img src="https://github.com/cartiklein/cartiklein/blob/main/image.jpg?raw=true" width="100%" alt="Image 1" />
 
 ### just be inspiration g
